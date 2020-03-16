@@ -7,3 +7,4 @@
 
 # twitter.com/rootraz0r - telegram: rootrazor
 
+![resim](https://i.hizliresim.com/lbzIgz.png)
